@@ -1,1 +1,1 @@
-Michael Kaminetskiy School Site
+School Site
